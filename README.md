@@ -1,4 +1,4 @@
-## Welcome to My Profile! 
+## Welcome to My Profile! 👋
 
 - BSc in Informatics and Computing Engineering at FEUP (Last Year) 🎓
 - Currently looking for opportunities to launch myself into the tech industry 🚀
